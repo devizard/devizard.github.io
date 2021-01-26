@@ -1,1 +1,0 @@
-# devizard.github.io
